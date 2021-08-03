@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @dezea2007
 - 👀 I’m interested in web developpment and video games developpement
-- 🌱 I’m currently learning in 9th class
+- 🌱 I’m currently learning in 10th class
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me ...
 
